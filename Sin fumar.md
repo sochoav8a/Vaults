@@ -1,3 +1,9 @@
+---
+publish: true
+---
+
+Día 3: Estoy que me fumo un dedo, pero también usando la locura para  hacer cositas
+
 Día 2: curioso 
 
 Día 1: se me olvidó a escribir pero me iba a comprar un vaporizador y me compré unas galletas 

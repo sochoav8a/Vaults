@@ -6,7 +6,7 @@ Acabo de terminar Children of dune.
 Dune Messiah es de mis libros favoritos y si han tenido la desgracia de hablar conmigo estos días sabrán que vivo para ver Dune 3 el 18 de diciembre
 
 Pero aún así tenía muchas dudas, para nadie es un secreto que cada libro de Dune se pone más raro y si el anterior iba algo raro con el tema de las resurrecciones y las visiones del futuro no sabía que podía esperar de este
-
+Q
 Okey, SPOILERS
 
 Primero Leto II, esta pequeña abominación es todo lo que está bien en este libro, Frank Herbert va dejando claro que Paul Atreides no es un heroe, lo dijo en el primer libro, la gente no lo entendió, luego escribió un segundo libro para que se entendiera y por si quedaban dudas, un tercero 
