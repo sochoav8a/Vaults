@@ -1,0 +1,1 @@
+Después de tantos años siendo víctima de esta condición, de triste. He notado algo que normalmente las personas se dan cuenta en sus 40s antes de suicidarse, que nada va a cambiar

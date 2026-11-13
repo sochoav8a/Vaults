@@ -1,0 +1,5 @@
+Acabo de terminar la trilogía “El recuerdo del pasado de la tierra” o para los amigos, el problema de los 3 cuerpos
+
+1er libro: El problema de los 3 cuerpos: El primer y probablemente el más flojo de los 3, aunque también el más fácil de entender. Para mí es un GRAN libro de misterio. Desde el inicio el libro abre un montón de preguntas y se demora en responder casi todas porque también está construyendo un universo que cuenta su historia
+Y hvh7
+2do libro: El bosque oscuro: este tiene EL PEOR INICIO que he leído en mucho tiempo, Liu Jin empieza a fletear con su imaginación y se tira 100 páginas del libro en esto. Dicho esto, el resto del libro es INCREÍBLE, si el primer libro es sobre un misterio este diría que es un libro sobre la desesperación. ¿Qué se puede hacer ante una misión imposible? ¿Se puede ganar jugando a perder? Y sobre todo, un libro sobre perder 
